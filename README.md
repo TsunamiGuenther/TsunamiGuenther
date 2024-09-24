@@ -1,8 +1,4 @@
-Hi there, I’m @TsunamiGuenther,
-
-it would be awesome, if you do not going my nervs! 
-
-A Coffee please, so we can be friends...
+Hi there, I’m @TsunamiGuenther
 
 
 <!---
